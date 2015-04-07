@@ -244,6 +244,16 @@ Social folks:
 Shows/blogs: [Bandwidth](https://twitter.com/bandwidthDC), [Metro Connection](https://twitter.com/wamumetro), [Kojo Nnamdi Show](https://twitter.com/kojoshow), [Diane Rehm Show](https://twitter.com/drshow)
 
 
+**WDET, Detroit's Public Radio** 
+
+[Facebook] (https://www.facebook.com/WDETFM?fref=ts) 
+
+[Twitter] (https://twitter.com/wdet)
+
+[Soundcloud] (https://soundcloud.com/wdet)
+
+[Instagram] (https://instagram.com/wdetdetroit)
+
 **On Point With Tom Ashbrook**
 
 [Facebook](http://www.facebook.com/OnPointRadio) | [Twitter](http://www.twitter.com/OnPointRadio) | [Tumblr](http://www.tumblr.com/OnPointRadio)
